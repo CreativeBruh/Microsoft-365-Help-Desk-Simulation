@@ -91,5 +91,5 @@ By completing this lab, I demonstrated the ability to:
 
 **Jose Solorzano**  
 IT Support & Cybersecurity Professional  
-*(Insert your LinkedIn or portfolio link here)*
+*www.linkedin.com/in/jose-solorzano-b9bb853a1*
 
